@@ -1,5 +1,3 @@
-### Hi there 👋
-
 **Ruben Jaraba**
 
 Soy de Vinaros, tengo un perro 🐕 y estudio en Tortosa en el instituto IES Ebre
